@@ -1,2 +1,0 @@
-# WebSiteIndex-MONSTERMC
-WebSiteIndex-MONSTERMC
